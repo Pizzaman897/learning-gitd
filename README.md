@@ -1,1 +1,1 @@
-### Owen BOti
+### Edward suka main sama syahroni
