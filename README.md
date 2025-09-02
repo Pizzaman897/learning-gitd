@@ -1,5 +1,1 @@
-### EDWARD GAY
-
-cukup ya
-
-### EDWARD TAK SIGMA
+### Owen BOti
