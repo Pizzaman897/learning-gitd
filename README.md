@@ -1,1 +1,3 @@
 ### EDWARD GAY
+
+cukup ya
